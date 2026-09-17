@@ -1,16 +1,21 @@
-## Hi there 👋
+## hi guys
 
-<!--
-**existentialisms/existentialisms** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+my name's existentialisms yay!!!!!!!!!!!!!!!!
 
-Here are some ideas to get you started:
+idk lmao i'm like lowkey socially anxious so please do bear with me if i take a while to talk
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+also i assume you found this through ponytown. hi!! i see you've found one of the way too many fandoms im into. YAY!! 
+
+w2i but my int is open!! im usually offtab though becuase i do this in class errrm :|
+
+uhhhhhhh i like!! (looking hot buying stuff they cannot /j) 
+
+musicals (any kind, i've heard of a lot and am open to learning abou more!!), gacha games (someone help my gambling addiction), PHIGHTING! (i love phighting i love phighting i love phighting i l-), uhhh i forgor lowk
+
+i have the memory span of a demented goldfish im sorry
+
+enfp so2w1-9w1-6w7:D so2 core type
+
+i draw sometimes but mostly i just write
+
+yay if i think of more i'll add more. i'll figure out the formatting when i got time
