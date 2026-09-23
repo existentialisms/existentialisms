@@ -10,7 +10,7 @@ w2i but my int is open!! im usually offtab though becuase i do this in class err
 
 uhhhhhhh i like!! (looking hot buying stuff they cannot /j) 
 
-musicals (any kind, i've heard of a lot and am open to learning abou more!!), gacha games (someone help my gambling addiction), PHIGHTING! (i love phighting i love phighting i love phighting i l-), typology (currently obsessed, you may catch me randomly typing fictional characters or my friends), uhhh i forgor lowk
+musicals (any kind, i've heard of a lot and am open to learning about more!!), gacha games (someone help my gambling addiction), PHIGHTING! (i love phighting i love phighting i love phighting i l-), typology (currently obsessed, you may catch me randomly typing fictional characters or my friends), uhhh i forgor lowk
 
 i have the memory span of a demented goldfish im sorry
 
@@ -18,7 +18,7 @@ enfp so2w1-6w7-1w9:D so2 core type
 
 i draw sometimes but mostly i just write
 
-plural!! (unfortunately. i love my headmates but respectfully please shut up. not you isms you!re goated)
+plural!! (unfortunately. i love my headmates but respectfully please shut up. not you isms you're goated)
 
 you see the thing is i'm sort of front-sticky because i'm also the host... isms is usually co-con, null really hates people, and rit is a darkheart fictive!! (i'm so cooked)
 
