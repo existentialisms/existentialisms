@@ -14,6 +14,8 @@ musicals (any kind, i've heard of a lot and am open to learning about more!!), g
 
 i have the memory span of a demented goldfish im sorry
 
+i'm also really really slow (and just the slightest bit socially stunted) so do excuse if i don't understand you at first ^^;; 
+
 enfp so2w1-6w7-1w9:D so2 core type
 
 i draw sometimes but mostly i just write
