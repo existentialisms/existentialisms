@@ -14,11 +14,15 @@ musicals (any kind, i've heard of a lot and am open to learning abou more!!), ga
 
 i have the memory span of a demented goldfish im sorry
 
-enfp so2w1-9w1-6w7:D so2 core type
+enfp so2w1-6w7-1w9:D so2 core type
 
 i draw sometimes but mostly i just write
 
-plural!! (unfortunately. i love my headmates but respectfully please shut up)
+plural!! (unfortunately. i love my headmates but respectfully please shut up. not you isms you!re goated)
+
+you see the thing is i'm sort of front-sticky because i'm also the host... isms is usually co-con, null really hates people, and rit is a darkheart fictive!! (i'm so cooked)
+
+uhh i go by any, isms goes by he/they (don't use she/her he will not be happy about that), null goes by it/they, rit goes by mirror pronouns :]
 
 currently studying for my end of year exams, may take longer to respond soz!! 
 
