@@ -6,11 +6,11 @@ idk lmao i'm like lowkey socially anxious so please do bear with me if i take a 
 
 also i assume you found this through ponytown. hi!! i see you've found one of the way too many fandoms im into. YAY!! 
 
-w2i but my int is open!! im usually offtab though becuase i do this in class errrm :|
+w2i c*h etcetcetc im usually offtab though becuase i do this in class errrm :| also my seat has TRASH internet 
 
 uhhhhhhh i like!! (looking hot buying stuff they cannot /j) 
 
-musicals (any kind, i've heard of a lot and am open to learning about more!!), gacha games (someone help my gambling addiction), PHIGHTING! (i love phighting i love phighting i love phighting i l-), typology (currently obsessed, you may catch me randomly typing fictional characters or my friends), uhhh i forgor lowk
+musicals (any kind, i've heard of a lot and am open to learning about more!!), gacha games (someone help my gambling addiction), rhythm games (pjsk, phigrOS, maimai, chunithm, etc.) PHIGHTING! (i love phighting i love phighting i love phighting i l-), typology (currently obsessed, you may catch me randomly typing fictional characters or my friends), uhhh i forgor lowk
 
 i have the memory span of a demented goldfish im sorry
 
@@ -28,4 +28,4 @@ uhh i go by any, isms goes by he/they (don't use she/her he will not be happy ab
 
 currently studying for my end of year exams, may take longer to respond soz!! 
 
-yay if i think of more i'll add more. i'll figure out the formatting when i got time
+yay if i think of more i'll add more. i'll figure out the formatting when i got time (likely never ^_^)
